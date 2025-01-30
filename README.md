@@ -3,3 +3,4 @@ this is a conception on space quantization,define time on quantized space's tran
 one moment-one space transformation-one 3d matrix-entropy value
 
 https://fundamentalquantum.github.io/myviewontheuniverse/my view on the universe.docx
+https://fundamentalquantum.github.io/myviewontheuniverse/我的宇宙观.docx
